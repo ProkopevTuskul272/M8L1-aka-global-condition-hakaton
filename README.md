@@ -1,0 +1,1 @@
+# M8L1-aka-global-condition-hakaton
